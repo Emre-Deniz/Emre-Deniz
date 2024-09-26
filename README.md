@@ -8,6 +8,7 @@
 - 💬 Ask me about **Computers, Programming, Hardware**
 
 - 📫 How to reach me **ed155123123@gmail.com**
+- 📫 How to reach me **www.linkedin.com/in/emre-deni̇z6435**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
